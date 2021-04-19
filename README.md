@@ -1,0 +1,1 @@
+# sphereblastvr-privacy policy
